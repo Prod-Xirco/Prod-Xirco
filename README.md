@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Prod-Xirco
+- 👋 Hi, I’m @Mikyle Johnson
 - I’m interested in Music Production 
 - I’m currently learning a lot of new talents in the music industry.
 - I’m looking to collaborate on new projects
